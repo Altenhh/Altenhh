@@ -1,1 +1,1 @@
-![img](https://alten.s-ul.eu/nKJyFBo3.png)
+![img](https://alten.s-ul.eu/Ohxf9t2L.png)
